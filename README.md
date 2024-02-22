@@ -1,0 +1,1 @@
+# jumal-fintecnico
